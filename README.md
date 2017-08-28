@@ -1,0 +1,2 @@
+# Mrsresearch
+ MRS Research Group provides a range of marketing and business research solutions designed for our client’s specific needs based on our expert resources. The business scopes of Prof Research cover more than 30 industries including energy, new materials, transportation, daily consumer goods, chemicals, etc. We provide our clients with one-stop solution for all the research requirements.
